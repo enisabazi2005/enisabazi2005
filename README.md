@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @enisabazi2005
 - 👀 I’m interested in Junior Developer
-- 🌱 I’m currently working in Starlabs
 - 💞️ I’m looking to collaborate with my teams
 - 📫 How to reach me , @enisabazi2005  
 - 😄 Male
